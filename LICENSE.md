@@ -1,4 +1,4 @@
-
+custom Script for jump to steal lucky blocks offers the most advanced jump to steal lucky blocks Script, with speed and auto-upgrade. Perfect for
 
 
 
